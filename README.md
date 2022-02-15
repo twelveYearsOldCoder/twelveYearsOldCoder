@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @twelveYearsOldCoder
-- 👀 I’m interested in YugiOh and ice crea,
+- 👀 I’m interested in YugiOh and ice cream
 - 🌱 I’m currently learning everytning
 - 💞️ I’m looking to collaborate on code n stuff
 - 📫 You can reach me in the park to race our bikes
